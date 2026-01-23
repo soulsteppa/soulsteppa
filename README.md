@@ -1,16 +1,13 @@
-## Hi there 👋
+## WITH MY INTENTIONS.. UP YOUR ASS!
 
-<!--
-**soulsteppa/soulsteppa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hahaaa hello party peopleee.. i'm dude slash newf slash WHATEVER ok?? im the host of a SYSTEM ok??.... you're a good listener ok keep listening!
 
-Here are some ideas to get you started:
+we are VERY radical about our beliefs ok mhm mhm...... yeah we're veeeery defensive mhmmmm..... calcium
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+frequent fronters are a few of the dudes other than me and sonny ok hi sonny :) :) :) she hates me hi sonny
+
+i'm willing to research on ANY view... i dont care about non-issues.. i AM against harming others.. and i am against predatory behaviours. that's all you need to know to come up with what i believe in.
+
+bodily AGELESS. GUESS MY AGE. FIND MY PAGES HOE.
+
+very. very woke schizotypal autist. my name is. my. what.oh shit
