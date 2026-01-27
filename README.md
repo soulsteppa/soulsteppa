@@ -1,6 +1,6 @@
 ## WITH MY INTENTIONS.. UP YOUR ASS!
 
-hahaaa hello party peopleee.. i'm dude slash newf slash WHATEVER ok?? im the host of a SYSTEM ok??.... you're a good listener ok keep listening!
+hahaaa hello party peopleee.. i'm dude slash WHATEVER you wanna call me ok?? im the host of a SYSTEM ok??.... you're a good listener ok keep listening!
 
 we are VERY radical about our beliefs ok mhm mhm...... yeah we're veeeery defensive mhmmmm..... calcium
 
