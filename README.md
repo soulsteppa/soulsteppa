@@ -1,10 +1,10 @@
 ## WITH MY INTENTIONS.. UP YOUR ASS!
 
-hahaaa hello party peopleee.. i'm dude slash WHATEVER you wanna call me ok?? im the host of a SYSTEM ok??.... you're a good listener ok keep listening!
+hahaaa hello party peopleee.. i'm newf slash WHATEVER you wanna call me ok?? im the host of a SYSTEM ok??.... you're a good listener ok keep listening!
 
 we are VERY radical about our beliefs ok mhm mhm...... yeah we're veeeery defensive mhmmmm..... calcium
 
-frequent fronters are a few of the dudes other than me and sonny ok hi sonny :) :) :) she hates me hi sonny
+another host is sonny ok hi sonny :) :) :) she hates me hi sonny
 
 i'm willing to research on ANY view... i dont care about non-issues.. i AM against harming others.. and i am against predatory behaviours. that's all you need to know to come up with what i believe in.
 
