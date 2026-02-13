@@ -11,6 +11,6 @@ watch your step when talking about beliefs ok.... we're veeeery defensive mhmmmm
 <p align="center">
 another host is sonny ok hi sonny :) :) :) she hates me hi sonny
 <p align="center">
-not telling you our bodily age on here just to be safe, but dni if you're freshly 14 and under. turning 15 is on thin ice. don't like talking to preschoolers
+not telling you our bodily age on here just to be safe, but dni if you're freshly 14 and under. turning 15 tread lightly. don't like talking to preschoolers
 <p align="center">
 very. very woke autist. my name is. my. what.oh shit
