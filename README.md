@@ -11,5 +11,5 @@ watch your step when talking about beliefs ok.... we're veeeery defensive mhmmmm
 <p align="center">
 another host is sonny ok hi sonny, :) :) :) she hates me. hi sonny.
 <p align="center">
-not telling you our bodily age on here just to be safe, but dni if you're freshly 14 and under. turning 15 tread lightly. don't like talking to preschoolers. 30+ dni too if you dont like that get a grip & suck my dick, whatever.
+not telling you our bodily age on here just to be safe, but dni if you're freshly 14 and under. turning 15 tread lightly. don't like talking to preschoolers. over the age of 35 dni too if you dont like that get a grip & suck my dick, whatever.
 <p align="center">
